@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with ultimate opensea sniper bot | mint-detection + volume-analysis, the #1 opensea sniper bot. Includes mint-detection and volume-analysis for a faster
 
 
 
